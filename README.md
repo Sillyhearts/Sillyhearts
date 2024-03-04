@@ -9,3 +9,4 @@ Also omg my besties and pookie wookies!!<3
 Sago(Aratraki), Croissant_bbg(theie disc.) Ivorry!! and i dont forget abouf my old bestiessssss Chantry/Uzi and PhiloDouma. hes permanently banned from PT...😭
 
 DNC copy my skins or tryna roasg or so called 'insult' me. i dont wanna show my rude side btw.<33
+[image description](https://i.postimg.cc/25xzZGXm/0a620a8d-2fa0-49f0-a8e8-67737e4b0140-5e0c4969-38f4-44fe-99c6-1b92e95eade7.jpg)
