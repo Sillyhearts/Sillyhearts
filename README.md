@@ -2,7 +2,7 @@ idm int or Cuddles. sometimes im afk or waiting for my friends etc.
 i dont have a rentry yet!
 ·͙*̩̩͙˚̩̥̩̥*̩̩̥͙　✩　*̩̩̥͙˚̩̥̩̥*̩̩͙‧͙ ׂׂૢ
 ˏˋ°•*⁀➷ 𝘓𝘰𝘴𝘵 įղ ⅌ᥲɾᥲdเ᥉ꫀ
-ermm hi nice to meet ya im Aizen/Dawnlight or Kiyo is preferred i also have a Patreon acc for some PT stu. i somehines have bad spelling due to typing fast. so pleas dont mind it-💀 i dont have dni's unless your weird asf. im 11
+ermm hi nice to meet ya im Aizen/Dawnlight or Kiyo is preferred i also have a Patreon acc for some PT stu. i somehines have bad spelling due to typing fast. so pleas dont mind it-💀 i dont have dni's unless your weird asf. im 12,
 
 i login in PT in some hours... due to having school or homeworks..
 im a proud Filipino and im BI.
