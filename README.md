@@ -13,4 +13,4 @@ Sago(Atraki), Croissant_bbg(theie disc.) Ivorry!! and i dont forget abouf my old
 
 if you see a person copying or taking inspo on my skins tell me immediately!!
 
-![image description](https://images.app.goo.gl/LBHLb)
+![image description](https://cdn.discordapp.com/attachments/1299677302942335007/1363275210241085550/hq720.jpg?ex=680eaafa&is=680d597a&hm=349637b0517c2f81d7fd00c950607fbd14011f3557dbfa94ab5f994f3bd18043&)
