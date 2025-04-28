@@ -1,4 +1,4 @@
-PLEASE CUDDLE OR HUG WITH ME PLSS I WOULDN'T MIND!!! sometimes im afk or waiting for my friends etc.  coral glasses is so me.
+PLEASE CUDDLE OR HUG WITH ME PLSS I WOULDN'T MIND!!! sometimes im afk or waiting for my friends etc.  coral glasses is so me. the pfp is made by me in ibis paint!
 
 ermm hi nice to meet ya im Zenny/Kiyo/Dawnlight or Kyaruu is preferred i also have a Patreon acc for some PT stu. i somehines have bad spelling due to typing fast. so pleas dont mind it-💀 i dont have dni's unless your weird asf. im 12,
 
