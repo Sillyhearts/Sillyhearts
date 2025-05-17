@@ -4,9 +4,7 @@ i go by many names, Zenny, Dawnlight short for Dawn, Kyaru,and Zentri
 
 im kinda ambiverted and has emotional hypersensitivity, ;-;
 
-12 , i usually can be found in safe servers. bc of how underaged i am.
-
-im fine with it if you don't want to int, (I READ YOUR GITHUBS OR PATREONS B4 INTERACTING!)
+minor, but i don't want to specify what age i am on the internet.
 
 Kindly Dnc or take inspo on my skins without my permission.
 
