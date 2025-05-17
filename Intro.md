@@ -2,13 +2,16 @@ PLEASE CUDDLE OR HUG WITH ME PLSS I WOULDN'T MIND!!! sometimes im afk or waiting
 
 i go by many names, Zenny, Dawnlight short for Dawn, Kyaru,and Zentri
 
-im kinda ambiverted and has emotional hypersensitivity, and I'm Bi!
+im kinda ambiverted and has emotional hypersensitivity, ;-;
 
-I'm just 12 but dw I'm not weird jm just playing pt bc i wanna make mg life easy when interacting irl. ^_^
+12 , i usually can be found in safe servers. bc of how underaged i am.
+
+im fine with it if you don't want to int, (I READ YOUR GITHUBS OR PATREONS B4 INTERACTING!)
 
 Kindly Dnc or take inspo on my skins without my permission.
 
 
 Also omg my besties and pookie wookies!!<3
 
-Sago(Atraki), Croissant_bbg(theie disc.) Ivorry!! and i dont forget abouf my old bestiessssss Chantry/Uzi and PhiloDoumanist. hes permanently banned sadly 💔
+Sago(Atraki), Croissant_bbg(theie disc.) Ivorry!! and i dont forget abouf my old bestiessssss Chantry/Uzi and PhiloDoumanist. hes permanently banned sadly.
+
